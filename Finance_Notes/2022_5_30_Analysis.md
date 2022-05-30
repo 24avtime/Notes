@@ -4,7 +4,7 @@
         2009年在上海创办过一家私人仓储公司
         曾经与人合作写过一本关于中国营商环境的书
         2020年3月份股价从每股2.81港元暴跌至每股0.42港元。公司宣布停牌至今
-![浑水做空的中概股](/Finance_Notes/img/浑水做空的中概股.jpg"浑水做空的中概股")<br>
+![浑水做空的中概股]([/Finance_Notes/img/浑水做空的中概股.jpg](https://github.com/24avtime/Notes/blob/main/Finance_Notes/img/%E6%B5%91%E6%B0%B4%E5%81%9A%E7%A9%BA%E7%9A%84%E4%B8%AD%E6%A6%82%E8%82%A1.jpg)"浑水做空的中概股")<br>
     
     1.Prime Brokerage
         帮你找证券公司
