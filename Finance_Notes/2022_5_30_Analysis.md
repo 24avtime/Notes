@@ -61,7 +61,7 @@
     8.Carl Icahn
         卡尔·伊坎
         一直都是以恶意收购名闻天下
-        大手笔的买入 Herbalife Nutrition 股票跟 Bill Ackman 反正干
+        大手笔的买入 Herbalife Nutrition 股票跟 Bill Ackman 反正干，做多
             Bill Ackman爆料负面新闻 Carl Icahn 反驳
             最后2017年 Herbalife Nutrition 直接涨了51% Bill Ackman默默亏了10亿美金
             
